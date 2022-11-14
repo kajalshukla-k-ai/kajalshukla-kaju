@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kajalshukla-kaju
+- 👋 Hi, I’m @kajalshukla-k-ai
 - 👀 I’m interested in Graphics Designing, Animations, Drawing,Web Designing and development
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on ...
